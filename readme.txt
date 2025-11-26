@@ -1,2 +1,3 @@
-Wellcome my guy! Are you there?
+Wellcome my guy! 
 How was your day?
+How are you doing?
